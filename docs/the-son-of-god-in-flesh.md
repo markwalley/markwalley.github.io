@@ -8,7 +8,7 @@ One question the church wrestled with (like the doctrine of the trinity) was at 
 
 Luke tells us that when Mary asked how she, a virgin, would have a baby an angel replied “The Holy Spirit will come on you, and the power of the Most High will overshadow you. So the holy one to be born will be called the Son of God” (Luke 1:35) Matthew tells us that Mary “was found to be pregnant through the Holy Spirit.” (Matthew 1:18). Joseph was told that “what is conceived in [Mary] is from the Holy Spirit.” (Matthew 1:20). The Holy Spirit does the work that brings the Son of God into human flesh, and He does it at Jesus’ conception. <sup id="fnr1">[1](#fn1)</sup>
 
-Consider the word overshadow in Luke 1:35. The word ἐπισκιάζω __episkiazō__ doesn’t appear often in Greek. In the gospels the only place else it appears is when the bright cloud of the divine presence over shadows Jesus and his disciples at the transfiguration. It’s also the word in the Greek translation of the Old Testament for when the cloud comes down on the tabernacle and the glory of the LORD filled it and made his presence know. Here is God appearing in person. <sup id="fnr2">[2](#fn2)</sup>
+Consider the word overshadow in Luke 1:35. The word ἐπισκιάζω _episkiazō_ doesn’t appear often in Greek. In the gospels the only place else it appears is when the bright cloud of the divine presence over shadows Jesus and his disciples at the transfiguration. It’s also the word in the Greek translation of the Old Testament for when the cloud comes down on the tabernacle and the glory of the LORD filled it and made his presence know. Here is God appearing in person. <sup id="fnr2">[2](#fn2)</sup>
 
 You could argue at this point that the Holy Spirit merely is making a unique, curse-of-sin-free, human embryo, and it’s only later that this unborn baby is united with the divine nature of the Son. But I think this is a very unnatural reading of those annunciation passages quoted. The Holy Spirit isn’t making a vessel for the Son to pop into later on, but He is doing the work of bringing the Son of God into the world as flesh. “The Holy Spirit will come upon you, and then 3-9 months later come upon you again to finish the job” is not the word of the lord. I also think this view would destroy the incarnation. If Christ doesn’t experience all of humanity, including the first nine months in the womb, he’s not a normal human, but a different one who has just borrowed flesh temporarily. His humanity would be an outfit He wears not something He becomes. But the Son of God becomes a real human at conception. This is what the council of Chalcedon in A.D. 451 affirmed. “At once complete in Godhead and complete in manhood”.
 
@@ -31,15 +31,19 @@ This is a particularly Christian argument for life beginning at conception. I do
 There are obviously applications to this to those who grieve miscarriage (In the UK where healthcare is good, [around 1 in 5 pregnancies end in miscarriage](https://www.tommys.org/baby-loss-support/miscarriage-information-and-support/miscarriage-statistics). That child who died was a real person, with real humanity. The grief felt is real. There are obvious other applications to how we see abortion. So much of the debate about rights and about healthcare ultimately come down to whether the collection of fertilised cells in a womb’s womb is a person or no
 
 ### Footnotes
+
 All quotes from scripture NIV 2011 unless otherwise noted.
 
-##### fn1 
-
+<ol>
+	<li id="fn1">
 John M. Frame, Systematic Theology: An Introduction to Christian Belief (Phillipsburg, NJ: P&R Publishing, 2013). p.885. <a href="#fnr1"  title="Jump back to footnote 1 in the text.">&#x21A9;&#xFE0E;︎</a>
+	</li>
 
-##### fn2
+	<li id="fn2">
+	James R Edwards, The Gospel According to Luke (Nottingham, UK: IVP, 2020). Luke 1:34-35. <a href="#fnr2"  title="Jump back to footnote 2 in the text.">&#x21A9;&#xFE0E;︎</a> 
+	</li>
+</ol>
 
-James R Edwards, The Gospel According to Luke (Nottingham, UK: IVP, 2020). Luke 1:34-35. <a href="#fnr2"  title="Jump back to footnote 2 in the text.">&#x21A9;&#xFE0E;︎</a> 
  
 Authored by Mark Walley on 28/06/2022 - Middlesbrough, UK. Permalink:  https://markwalley.github.io/the-son-of-god-in-flesh.html
 
