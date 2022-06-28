@@ -6,9 +6,9 @@ It’s a settled matter of Christian doctrine that the true God is the Trinitari
  
 One question the church wrestled with (like the doctrine of the trinity) was at what point did the Son of God become human? Did the Son hijack a human body at His baptism? Did He turf out an existing human being or perhaps unite himself with the human already there? Or was it at his birth? Or some other period? Just as they did with the doctrine of the trinity the church also came to a settled conclusion on the matter. The bible teaches that the Son of God became human at conception.
 
-Luke tells us that when Mary asked how she, a virgin, would have a baby an angel replied “The Holy Spirit will come on you, and the power of the Most High will overshadow you. So the holy one to be born will be called the Son of God” (Luke 1:35) Matthew tells us that Mary “was found to be pregnant through the Holy Spirit.” (Matthew 1:18). Joseph was told that “what is conceived in [Mary] is from the Holy Spirit.” (Matthew 1:20). The Holy Spirit does the work that brings the Son of God into human flesh, and He does it at Jesus’ conception. ^[1](#fn1)^
+Luke tells us that when Mary asked how she, a virgin, would have a baby an angel replied “The Holy Spirit will come on you, and the power of the Most High will overshadow you. So the holy one to be born will be called the Son of God” (Luke 1:35) Matthew tells us that Mary “was found to be pregnant through the Holy Spirit.” (Matthew 1:18). Joseph was told that “what is conceived in [Mary] is from the Holy Spirit.” (Matthew 1:20). The Holy Spirit does the work that brings the Son of God into human flesh, and He does it at Jesus’ conception. <sup id="fnr1">[1](#fn1)</sup>
 
-Consider the word overshadow in Luke 1:35. The word ἐπισκιάζω __episkiazō__ doesn’t appear often in Greek. In the gospels the only place else it appears is when the bright cloud of the divine presence over shadows Jesus and his disciples at the transfiguration. It’s also the word in the Greek translation of the Old Testament for when the cloud comes down on the tabernacle and the glory of the LORD filled it and made his presence know. Here is God appearing in person. ^[2](#fn2)^
+Consider the word overshadow in Luke 1:35. The word ἐπισκιάζω __episkiazō__ doesn’t appear often in Greek. In the gospels the only place else it appears is when the bright cloud of the divine presence over shadows Jesus and his disciples at the transfiguration. It’s also the word in the Greek translation of the Old Testament for when the cloud comes down on the tabernacle and the glory of the LORD filled it and made his presence know. Here is God appearing in person. <sup id="fnr2">[2](#fn2)</sup>
 
 You could argue at this point that the Holy Spirit merely is making a unique, curse-of-sin-free, human embryo, and it’s only later that this unborn baby is united with the divine nature of the Son. But I think this is a very unnatural reading of those annunciation passages quoted. The Holy Spirit isn’t making a vessel for the Son to pop into later on, but He is doing the work of bringing the Son of God into the world as flesh. “The Holy Spirit will come upon you, and then 3-9 months later come upon you again to finish the job” is not the word of the lord. I also think this view would destroy the incarnation. If Christ doesn’t experience all of humanity, including the first nine months in the womb, he’s not a normal human, but a different one who has just borrowed flesh temporarily. His humanity would be an outfit He wears not something He becomes. But the Son of God becomes a real human at conception. This is what the council of Chalcedon in A.D. 451 affirmed. “At once complete in Godhead and complete in manhood”.
 
@@ -34,10 +34,12 @@ There are obviously applications to this to those who grieve miscarriage (In the
 All quotes from scripture NIV 2011 unless otherwise noted.
 
 ##### fn1 
-John M. Frame, Systematic Theology: An Introduction to Christian Belief (Phillipsburg, NJ: P&R Publishing, 2013). p.885
+
+John M. Frame, Systematic Theology: An Introduction to Christian Belief (Phillipsburg, NJ: P&R Publishing, 2013). p.885. <a href="#fnr1"  title="Jump back to footnote 1 in the text.">&#x21A9;&#xFE0E;︎</a>
 
 ##### fn2
-James R Edwards, The Gospel According to Luke (Nottingham, UK: IVP, 2020). Luke 1:34-35
+
+James R Edwards, The Gospel According to Luke (Nottingham, UK: IVP, 2020). Luke 1:34-35. <a href="#fnr2"  title="Jump back to footnote 2 in the text.">&#x21A9;&#xFE0E;︎</a> 
  
 Authored by Mark Walley on 28/06/2022 - Middlesbrough, UK. Permalink:  https://markwalley.github.io/the-son-of-god-in-flesh.html
 
